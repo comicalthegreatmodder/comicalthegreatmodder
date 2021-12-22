@@ -2,4 +2,4 @@
 - 👀 im interested in gamedev, mostly fnf modding
 - 🌱 im currently learning haxe
 - 💞️ im looking to collaborate on an fnf mod (pls help i need help pls-)
-- 📫 how to reach me: you cant reach me anywhere but discord (comical#1234)
+- 📫 how to reach me: you cant reach me anywhere but discord (detective comical#1234)
